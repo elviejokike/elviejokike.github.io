@@ -1,7 +1,5 @@
-# elviejokike
-
-- Cloud/Software Architect
-
+Kike (my shortname), is very social person, full of initiative and creativity, with a strong problem solving analytical mind, confident and quick to adapt; very technology enthusiast; strong sense of responsibility, good sense of humor and knows how to put problems in perspective.
+In my professional life I have learned that it does not matters how much knowledge you have, but how much of it you can share and transmit. I like to read a lot about my professional field, to try things out, to see what is going out there, to roll up my sleeves and to listen what someone else is doing. In this way, i learn and I build my knowledge and create a solid background.
 
 ## Experience
 
